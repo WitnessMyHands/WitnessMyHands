@@ -10,7 +10,7 @@ Relatively new to coding with some graphic design experience that I'll put to us
 ## 👽 Fun Facts:
 
 - 🪄 I can speak English and Spanish (with a degree of difficulty, but I'm confident).
-- 🛩️ Upon completion of this coding course, I intend on resuming my education to become an aviator.
+- 🛩️ Upon completion of this coding course, I intend on resuming my education to learn how to fly.
 - 🔥 I prefer to use these things ' ' instead of these " ".
 - 🍷🍸🍻 Polymath.
 - 💬 [Ask me Anything](mailto:cgbarr89@gmail.com)
